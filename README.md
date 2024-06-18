@@ -1,1 +1,1 @@
-# s15aula2
+O inverno começa nesta semana e, ao contrário do que pode constar em alguns livros didáticos ou apostilas (foto acima), neste ano o início da estação não é no dia 21 de junho. De acordo com o Instituto Nacional de Meteorologia (Inmet), em 2024, o inverno começa às 17h51 do dia 20.
