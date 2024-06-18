@@ -2,3 +2,4 @@ O inverno começa nesta semana e, ao contrário do que pode constar em alguns li
 
 O dono de uma loja de celulares no Paraná que reagiu a um assalto e deu cinco tiros no suspeito não responderá criminalmente pelos disparos porque a polícia entendeu que ele agiu em legítima defesa. Por lei, há cinco requisitos em que a reação é interpretada dessa forma.
 
+Uma jovem de 27 anos e um idoso de 64 anos morreram em uma tentativa de assalto na Saída 6 da Linha Amarela, em Higienópolis, Zona Norte do Rio de Janeiro, na manhã desta terça-feira (18).
